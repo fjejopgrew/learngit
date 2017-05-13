@@ -1,1 +1,1 @@
-# learngit is hard! Fuck!
+# learngit is hard! Fuck! Shit!
